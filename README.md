@@ -1,1 +1,2 @@
-[_Curiosear perfiles casi te hace desear un invierno nuclear._](https://www.youtube.com/watch?v=SXUuSrqblG4)
+[_Desde el momento en que comprendí la debilidad de mi propia carne, me sentí repugnado. Ansiaba la fuerza y la certeza del acero. Aspiraba a la pureza de la Máquina Bendita. Los de tu clase se aferran a su carne, como si no fuera a descomponerse y fallaros. 
+Algún día, la tosca biomasa que consideráis vuestro templo se marchitará, y nos suplicaréis que os salvemos. Pero yo ya estoy salvado, porque la Máquina es inmortal... Incluso en la muerte sirvo al Omnissiah._](https://www.youtube.com/watch?v=ztzq05IzYds)
