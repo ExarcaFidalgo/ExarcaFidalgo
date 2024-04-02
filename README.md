@@ -4,3 +4,6 @@
 <p align="center">
   <img src="kek.gif" alt="CEO of Humanity"/>
 </p>
+
+
+[PhD Status](https://www.youtube.com/watch?v=NycmwITQVDQ)
